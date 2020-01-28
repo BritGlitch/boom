@@ -1,16 +1,1 @@
 # boom
-# boom
-# boom
-# boom
-# boom
-# boom
-# boom
-# scaling_octo_chainsaw
-# scaling_octo_chainsaw
-# boom
-# boom
-# boom
-# boom
-# boom
-# boom
-# boom
